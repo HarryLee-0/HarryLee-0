@@ -1,3 +1,3 @@
-Hello! I'm a student at Bronx Science and a big Minecraft player (focused on MCBE redstone and random technical things) who likes to code random things sometimes!
+hello! im a student at bxsci and i like minecraft (focused on MCBE redstone and random technical things). i also like to code random things sometimes!
 
-I'm also @HenryLi-0 's other account
+im also @HenryLi-0 's other account!
